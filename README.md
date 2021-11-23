@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xs0he
+- 👀 I’m interested in dammit still processing this one
+- 🌱 I’m currently class 12 student
+- 💞️ I’m just new here nd looking forward to learn something new
+- 📫 How to reach me ...insta-@jasmine_tanjea
